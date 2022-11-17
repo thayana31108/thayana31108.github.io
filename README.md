@@ -1,2 +1,2 @@
-# WELCOME TO thayana31108.github.io
+# WELCOME TO GITHUB 
 ## 	[JHS PORTAL](https://jhsportal.adnu.edu.ph/)
